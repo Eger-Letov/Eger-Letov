@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Eger-Letov
-- 👀 I’m interested in sex
+- 👀 I’m interested in my mind
 - 🌱 I’m currently learning bad
-- 💞️ I’m looking to collaborate on my mind
+- 💞️ I’m looking to collaborate on love
 - 📫 How to reach me dawn
 
 <!---
